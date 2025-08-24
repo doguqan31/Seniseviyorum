@@ -1,0 +1,2 @@
+# Seniseviyorum
+Seniseviyorum duru
